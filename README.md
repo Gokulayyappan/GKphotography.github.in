@@ -1,1 +1,1 @@
-# GKphotography.github.in
+# GKphotography.github.io
